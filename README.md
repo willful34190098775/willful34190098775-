@@ -1,1 +1,5 @@
-# willful34190098775-
+About Me:
+- In the Process of Learning
+- Open to learning any and all things
+
+😄
